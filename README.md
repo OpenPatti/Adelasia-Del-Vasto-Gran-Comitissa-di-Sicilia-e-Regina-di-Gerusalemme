@@ -10,4 +10,6 @@ Le iscrizioni dovranno essere presentate a mezzo pec ([comune.patti.me@pec.itgo.
 1) Disciplinare  
 2) Modulo iscrizione  
 3) Allegato 1 (dichiarazione)  
-4) Allegati 2 (aree interessate all’evento) Per info: Ufficio Turismo (0941/1939999 – Int. n. 4)  
+4) Allegati 2 (aree interessate all’evento) Per info: Ufficio Turismo (0941/1939999 – Int. n. 4)
+
+![img](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/area_cavour.jpeg)
