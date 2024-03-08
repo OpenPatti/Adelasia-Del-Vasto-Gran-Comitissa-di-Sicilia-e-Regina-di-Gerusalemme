@@ -8,7 +8,7 @@ La Giunta Municipale ha approvato, con atto deliberativo N. 68 dell’08/03/2024
 Le iscrizioni dovranno essere presentate a mezzo pec ([comune.patti.me@pec.itgo.it](mailto:comune.patti.me@pec.itgo.it)), oppure e-mail ([protocollo@comune.patti.me.it](mailto:protocollo@comune.patti.me.it)) entro giorno **14 Marzo 2024**. Se presentate brevi manu al protocollo generale sito nel palazzo municipale di Piazza Scaffidi – 98066 Patti (ME), **entro e non oltre le ore 12:00 del 14 Marzo 2024**.
 
 1) [Disciplinare](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/DISCIPLINARE.PDF){:target="_blank"}   
-2) [Modulo d'iscrizione](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/MODULO DI ISCRIZIONE CENA MEDIEVALE NEL BORGO.docx){:target="_blank"}  
+2) [Modulo d'iscrizione](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/MODULO DI ISCRIZIONE CENA MEDIEVALE NEL BORGO.docx){:target="_blank"}  
 3) Allegato 1 (dichiarazione)  
 4) Allegati 2 (aree interessate all’evento) Per info: Ufficio Turismo (0941/1939999 – Int. n. 4)
 
