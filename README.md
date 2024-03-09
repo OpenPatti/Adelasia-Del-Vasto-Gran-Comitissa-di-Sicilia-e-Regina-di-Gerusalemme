@@ -9,8 +9,10 @@ Le iscrizioni dovranno essere presentate a mezzo pec ([comune.patti.me@pec.itgo.
 
 1) [Disciplinare](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/DISCIPLINARE.PDF){:target="_blank"}   
 2) [Modulo d'iscrizione](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/MODULO DI ISCRIZIONE CENA MEDIEVALE NEL BORGO.docx){:target="_blank"}  
-3) Allegato 1 (dichiarazione)  
-4) Allegati 2 (aree interessate all’evento) Per info: Ufficio Turismo (0941/1939999 – Int. n. 4)
+3) [Allegato 1 (dichiarazione)](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/ALLEGATO_1.docx){:target="_blank"}  
+4) [Allegati 2 (aree interessate all’evento)](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/
+
+**Per info: Ufficio Turismo (0941 1939999 – int. 4)**  
 
 ![img](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/area_cavour.jpeg) ![img](https://openpatti.github.io/Adelasia-Gran-Comitissa-e-Regina/contents/area_san_biagio.jpeg) 
 
